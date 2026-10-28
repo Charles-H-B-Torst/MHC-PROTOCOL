@@ -1,0 +1,1 @@
+me fala uma coisa seria... ISSO NAO E NORMAL NE? nao e brincadeira kkk a economia vai SE TORNAR ALGO... PERFEITO? a vida das pessoas, empresas, governos.... tipo.. o poder de compra da populacao e dos paises... isso vai mudar demais com o MHC? 
